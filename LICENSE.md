@@ -1,4 +1,4 @@
-
+blue lock rivals secure Scripts is the best blue lock rivals Script, featuring anti-ban and silent aim. Safe and powerful for all your needs.
 
 
 
